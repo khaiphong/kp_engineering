@@ -1,3 +1,3 @@
 # kp_engineering
 
-Engineering to promote "Core Values of Honesty &amp; Care"
+is Sustainable Engineering to promote [ <b>Core Values of "#Truth &gt;&lt; #Honesty &gt;&lt; #Care &gt;&lt;"</b> ]. A mobile technology developed by a two-PhD-Polish Canadian to clean <b>yellow-agent (dioxin) and other contaminations from mining and manufacturing processes</b>, returning polluted areas and soils into <b>safe and healthy environments</b> will be evaluated and further developed as a starting point to clean <b>American practices of military Keynesian economics and Chinese unsafe operations of market-driven economies in the current calculation of GDP (Gross Domestic Product) and GNP (Gross National Product)</b> for the sole target of profits  in VietNam, Cambodia, and Laos. 
